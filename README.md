@@ -1,4 +1,4 @@
-# 🏄‍♂️ Cong Hoang
+# 👨‍💻 Cong Hoang
 
 **`Senior Mobile Engineer`**
 
